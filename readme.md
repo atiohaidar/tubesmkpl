@@ -1,0 +1,1 @@
+Kodingan ini dari chatGPT
